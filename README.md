@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tparrish18
 - 👀 I’m interested in beging a pre-k teacher
 - 🌱 I’m currently learning how to make a bottle rocket
-- 💞️ I’m looking to collaborate on my love life.
+- 💞️ I’m looking to collaborate on my grades.
 - 📫 How to reach me trinityparrish28@walkerschools.org
 
 <!---
